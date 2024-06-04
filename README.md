@@ -1,8 +1,8 @@
 #~^Assistir — The Watchers - Eles Veem Tudo (2024) HD grátis Filme completo em Portuguêse
 
-**[➤➤🔴✅📱 Assistir agora 🔴✅➤➤ The Watchers - Eles Veem Tudo (2024) Filme Completo](https://cinematix.download/pt/movie/tt26736843)**
+**[➤➤🔴✅📱 Assistir agora 🔴✅➤➤ The Watchers - Eles Veem Tudo (2024) Filme Completo](https://play.cinematix.download/pt/movie/tt26736843)**
 
-**[➤➤🔴✅📱 Assistir agora 🔴✅➤➤ The Watchers - Eles Veem Tudo (2024) Filme Completo](https://cinematix.download/pt/movie/tt26736843)**
+**[➤➤🔴✅📱 Assistir agora 🔴✅➤➤ The Watchers - Eles Veem Tudo (2024) Filme Completo](https://play.cinematix.download/pt/movie/tt26736843)**
 
 ![The Watchers - Eles Veem Tudo 2024](https://image.tmdb.org/t/p/w780/1zKkFp1l6oTXsGP87YuxEKWi5g3.jpg)
 
